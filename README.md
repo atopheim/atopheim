@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 
 - 👯 I’m looking to collaborate on maker projects, health technology and creative endevours. 
-- 🤔 I’m looking for help with finishing my projects.
+- 🤔 I’m looking for help with finishing more projects.
 - 💬 Ask me about how I have fun, entrepreneurship and technology.
 - 📫 How to reach me: [torbjornopheim.com](https://www.torbjornopheim.com)
